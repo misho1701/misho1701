@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/misho1701](https://github.com/misho1701)
 
-- 📫 How to reach me **mishomi6onkata@abv.bg**
+- 📫 How to reach me **mihail.georgiev17@abv.bg**
 
 - ⚡ Fun fact **I am retired football player**
 
